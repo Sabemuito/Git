@@ -25,12 +25,10 @@ Rafael Soares Cardozo - RA 122213301
 
 Luís Guilherme Vieira Jatobá - RA 82223098
 
-João Paulo Pereira Martins RA 32228322
-
-Adriano Henrique Xavier Rodrigues - RA 422210209
-
 Nycolas Santos Pereira - RA 1072325040
 
 Gabriel Lopes Capanema - RA: 321113563
+
+Gabriel Sonza Brun - RA: 122221251
 
 Thiago Schott - RA 1072325040
